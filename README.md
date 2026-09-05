@@ -1,1 +1,1 @@
-# robin-chen-case-study-katana-3d-ecommerce
+# Robin Chen case study - Katana 3D e-commerce
